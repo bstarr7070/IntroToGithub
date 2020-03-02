@@ -10,7 +10,8 @@ Motivation:
   
   My goal here is to motivate you and have you feel like this career shift is possible for you. Through hard work and definitive purpose it 
   is possible. 
-  
+   email: b.starr7070@gmail.com
+  - github: bstarr7070
   
   
   
